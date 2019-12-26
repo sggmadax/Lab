@@ -15,5 +15,6 @@ My grandpop in korea, an remote town of the east part of the pennisula.
 
 
 
-#### ShanDong 1930
-bra
+#### Branch China 
+###### ShanDong 192(x) ~ 1947
+* After back to China, LaoLao further gave birth to 4 boys
